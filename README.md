@@ -1,2 +1,3 @@
 # hello-world
 my first repository
+In my opinion, PPP leader Mr. Zulfiquar Ali Bhutto was right in not accepting the resolution put forward by Poland on 14th of December 1971. Some of the researchers are of the opinion that if he had accepted the terms of that resolution, it may have resulted in a cease fire and East Pakistan (now Bangladesh) would not have been seperated from west Pakistan. But in actual, that resolution apparantly put forward by Poland was seconded at the back end by USSR. Further more, the conditions written in document were not clear enough to promise a satisfing outcome for Pakistan.  This all drama was created by (so called) leading counties for their personal interests in long run.
